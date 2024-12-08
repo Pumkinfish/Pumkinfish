@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Pumkinfish
+- 👀 I’m interested in eating bricks
+- 🌱 I’m currently learning Subnautica modding
+- 📫 How to reach me: I'm a minor
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I love cats
